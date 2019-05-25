@@ -25,3 +25,5 @@ Web links (for applicable files):
 [procrastinators_final.png](https://vectr.com/gwenleibryn/eC0gtEegp.png?width=2000&height=2000&select=fbwltPqb)
 
 [procrastinator_purple.png](https://vectr.com/gwenleibryn/eC0gtEegp.png?width=2000&height=2000&select=e18xMhzFIN)
+
+[procrastinators_gold.png](https://vectr.com/gwenleibryn/eC0gtEegp.png?width=2000&height=2000&select=c8wpvN6Hf)
